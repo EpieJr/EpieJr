@@ -1,9 +1,9 @@
 - 👋 Hi, Am EPIE JUNIOUR
-- 👀 I am Data Analytics 
+- 👀 I am Data Analyst/ Business Analyst
 - 🌱 I’m currently open for Data Analytics jobs
 - 💞️ I’m looking to collaborate on any projects 
 - 📫 How to reach me Epiejuniora@gmail.com 
-- 😄 Pronouns: ...
+- 😄 I am looking foward to work with your achieve your goals
 - ⚡ Fun fact: I intrested in giving your data meaningfull and impactfull insides 
 
 <!---
